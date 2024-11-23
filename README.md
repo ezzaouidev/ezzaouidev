@@ -1,0 +1,7 @@
+- 👋 Hi, I’m @ezzaouidev
+- 👀 I’m interested in computers
+- 🌱 I’m currently learning coding
+- 💞️ I’m looking to collaborate on BIOS brands
+- 📫 How to reach me ig: @ez_p3ace
+- 😄 Pronouns: guess
+- ⚡ Fun fact: nothing
